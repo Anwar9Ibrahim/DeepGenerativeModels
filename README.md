@@ -6,8 +6,7 @@ Lecture: Denis Derkach
 
 Seminars DSBA: Anwar Ibrahim 
 
-TG AMI: +dear3dciXPBmNWUy
-TG DSBA: +wBWhENdpkC9hNTli
+[TG DSBA](https://t.me/+5CgWZOj6OvFlYWU0)
 
 Anytask: TBD
 
