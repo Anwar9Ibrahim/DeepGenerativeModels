@@ -8,7 +8,7 @@ Seminars DSBA: Anwar Ibrahim (@nanaIbr)
 
 Teaching Assistant: Muhammad Hashaam (@hashaam13)
 
-[TG DSBA](https://t.me/+5CgWZOj6OvFlYWU0)
+Join our Telegram group for latest announcements [TG DSBA](https://t.me/+5CgWZOj6OvFlYWU0)
 
 Anytask: TBD
 
