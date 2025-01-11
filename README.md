@@ -10,5 +10,5 @@ Teaching Assistant: Muhammad Hashaam (@hashaam13)
 
 Join our Telegram group for latest announcements [TG DSBA](https://t.me/+5CgWZOj6OvFlYWU0)
 
-Anytask: TBD
+Anytask: [link](https://anytask.org/course/1160#tasks-tab)
 
