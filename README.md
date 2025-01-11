@@ -4,7 +4,7 @@ Course for the students of HSE University AMI/DSBA/MCS programmes [Moscow](https
 
 Lecture: Denis Derkach (@Den_dee)
 
-Seminars DSBA: Anwar Ibrahim (@nanaIbr)
+Seminars DSBA: Anwar Ibrahim (@nanaIbr), Tigran Ramazyan (@ramazyant)
 
 Teaching Assistant: Muhammad Hashaam (@hashaam13)
 
