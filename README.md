@@ -4,11 +4,7 @@ Course for the students of HSE University AMI/DSBA/MCS programmes [Moscow](https
 
 Lecture: Denis Derkach
 
-Seminars AMI: Artem Ryzhikov, Sergei Popov, Fedor Buzaev
-
-Seminars DSBA: Tigran Ramazyan
-
-Instructors: TBD
+Seminars DSBA: Anwar Ibrahim 
 
 TG AMI: +dear3dciXPBmNWUy
 TG DSBA: +wBWhENdpkC9hNTli
